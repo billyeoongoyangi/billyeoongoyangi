@@ -7,7 +7,7 @@
          
 　　　　　　　　　　　　　( nb terms )
 
-　　　　　　　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
+　　　　　　   　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
   　　　　　　　　　　encore / evo or two time ! 
