@@ -2,20 +2,22 @@
 <img align="center" alt="2tm" src="https://ella.janitorai.com/bot-avatars/x5ksMLHOtLBV9xz1jfSD6.webp?width=1200">
 ⁣　　　
 
-　　　　　　　　ৎ  they ﹒ them  𓏏  
+　　　　　　　　　　ৎ  they ﹒ them  𓏏  
       　
          
-　　　　　　　　　　　( nb terms )
+　　　　　　　　　　　　　( nb terms )
 
 　　　　　　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
-  　　　　　　encore / evo or two time ! 
+  　　　　　　　　　　encore / evo or two time ! 
       
-　　　　　　　　　dnc skins pls ^_^　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　　　　dnc skins pls ^_^　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
      
 
 
 　　c+h only if friend, know person or in name ! whisper to int and int freely + pls be my friend im cool ok...
 
 　　　　　　| please dont take most of my jokes seriously , but dni if u make jokes with p3d0,the r word.. stuff like that, its actually disgusting bleughhh 💔
+
+SIGN MY ATA GRR
