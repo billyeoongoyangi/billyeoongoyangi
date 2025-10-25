@@ -23,3 +23,6 @@ warn , sm boundary :
 　　　　| please dont take most of my jokes seriously , but dni if u make jokes with p3d0,the r word.. stuff like that, its actually disgusting bleughhh 💔
 
 　　　　　　　　　　　: SIGN MY ATA GRR
+
+<img align="left" alt="nghsthd" src="https://64.media.tumblr.com/43430517ddb8ac1304148a0cd71f7839/44cec08fba6c7529-4c/s250x400/7a6de1aff4cf38842fab613ec918de85975a5aca.pnj">
+<img align="center" alt="nghtshd2" src="https://64.media.tumblr.com/b9541de6b5e1041c791c0077b9ffedc0/44cec08fba6c7529-fa/s250x400/8bb1c9ef62e291e9093a6bf37a1b5f39475c7412.pnj">
