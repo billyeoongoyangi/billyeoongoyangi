@@ -7,7 +7,7 @@
          
 　　　　　　　　　　　　　( nb terms )
 
-　　　　　　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
+　　　　　　　　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
   　　　　　　　　　　encore / evo or two time ! 
@@ -20,4 +20,4 @@
 
 　　　　　　| please dont take most of my jokes seriously , but dni if u make jokes with p3d0,the r word.. stuff like that, its actually disgusting bleughhh 💔
 
-SIGN MY ATA GRR
+　　　　　　　　　　　　　　: SIGN MY ATA GRR
