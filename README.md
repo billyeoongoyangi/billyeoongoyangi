@@ -10,9 +10,9 @@
 　　　　　　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
-  　　　　encore / evo or two time ! 
+  　　　　　　encore / evo or two time ! 
       
-　　　　　　dnc skins pls ^_^　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+　　　　　　　　　dnc skins pls ^_^　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
      
 
 
