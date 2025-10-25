@@ -10,7 +10,12 @@
 　　　　　　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
-  　　　　encore / evo or two time !　　　 dnc skins pls ^_^　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
-      c+h only if friend, know person or in name ! whisper to int and int freely + pls be my friend im cool ok...
+  　　　　encore / evo or two time ! 
+      
+　　　　　　dnc skins pls ^_^　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　
+     
+
+
+　　c+h only if friend, know person or in name ! whisper to int and int freely + pls be my friend im cool ok...
 
 　　　　　　| please dont take most of my jokes seriously , but dni if u make jokes with p3d0,the r word.. stuff like that, its actually disgusting bleughhh 💔
