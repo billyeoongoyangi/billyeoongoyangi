@@ -14,7 +14,7 @@
       
 　　　　　　　　　　　　dnc skins pls ^_^　　　　　
 
-　　　　　　　　　　　　   i follow back
+　　　　　　　　　　　　     i follow back
      
 
 
@@ -25,15 +25,15 @@ warn , sm boundary :
 　　　　| please dont take most of my jokes seriously , but dni if u make jokes with p3d0,the r word.. stuff like that, its actually disgusting bleughhh 💔
 　　　　　　
       
-      also i can accidentally sleep when im playing because i stare at the phone and then feel sleepy.. yea. but if i do sleep when im sitting next to you, cuddling or with you many times that means i already trust you enough atleast to do that..
+　　　also i can accidentally sleep when im playing because i stare at the phone and then feel sleepy.. yea. but if i do sleep when im sitting next to you, cuddling or with you many times that means i already trust you enough atleast to do that..
 　　　　　
 
 
 　　if im uncomfortable ill either walk away or sit somewhere else OR be silent (and im with you maybe whisp it to u)
-　　　　　　　　　　　　　i lag too much sometimes and my keyboard gets stuck so i cant type 💔
+　　　　　　　　　　i lag too much sometimes and my keyboard gets stuck so i cant type 💔
 
 　　　　
-         my profile is better on phone wtf >_>
+        　　 my profile is better on phone wtf >_>
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
