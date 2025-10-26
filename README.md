@@ -27,11 +27,10 @@ warn , sm boundary :
       
       also i can accidentally sleep when im playing because i stare at the phone and then feel sleepy.. yea. but if i do sleep when im sitting next to you, cuddling or with you many times that means i already trust you enough atleast to do that..
 　　　　　
-    
-     if im uncomfortable ill either walk away or sit somewhere else OR be silent (and im with you maybe whisp it to u)
-　　　　
- 
-    i lag too much sometimes and my keyboard gets stuck so i cant type 💔
+
+
+　　if im uncomfortable ill either walk away or sit somewhere else OR be silent (and im with you maybe whisp it to u)
+　　　　　　　　　　　　　i lag too much sometimes and my keyboard gets stuck so i cant type 💔
 
 　　　　
          my profile is better on phone wtf >_>
