@@ -14,7 +14,7 @@
       
 　　　　　　　　　　　　dnc skins pls ^_^　　　　　
 
-　　　　　　　　　　　　     i follow back
+　　　　　　　　　　　　       i follow back
      
 
 
@@ -30,10 +30,10 @@ warn , sm boundary :
 
 
 　　if im uncomfortable ill either walk away or sit somewhere else OR be silent (and im with you maybe whisp it to u)
-　　　　　　　　　　i lag too much sometimes and my keyboard gets stuck so i cant type 💔
+　　　　　　　　　　　i lag too much sometimes and my keyboard gets stuck so i cant type 💔
 
 　　　　
-        　　 my profile is better on phone wtf >_>
+        　　　 my profile is better on phone wtf >_>
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
