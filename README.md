@@ -25,7 +25,7 @@ warn , sm boundary :
 　　　　| please dont take most of my jokes seriously , but dni if u make jokes with p3d0,the r word.. stuff like that, its actually disgusting bleughhh
 　　　　　　
       
-　　　also i can accidentally sleep when im playing because i stare at the phone and then feel sleepy.. yea. but if i do sleep when im sitting next to you, cuddling or with you many times that means i already trust you enough atleast to do that..
+　　　also i can accidentally sleep when im playing because i stare at the screen for too long and then feel sleepy.. yea.. i turn off offline mode because i feel better like that sometimes, if ur my friend no i didnt add u >u>
 　　　　　
 
 
