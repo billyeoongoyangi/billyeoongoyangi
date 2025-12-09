@@ -1,5 +1,5 @@
 <img align="center" alt="nightshd" src="https://64.media.tumblr.com/30fb5c05b6f08ed6d887beef7397daca/5fc0cb049961a394-03/s1280x1920/0653b72a2709b49e325b4f0d32ebb1aa14ee769b.pnj">
-<img align="center" alt="2tm" src="https://i.imgur.com/skpDdSj.gif">
+<img align="center" alt="2tm" src="https://characterai.io/i/200/static/avatars/uploaded/2025/5/19/yPJ-B4o5puz6mxoRwaUAfL5OtiwjrJjm6glQt53gwDY.webp?webp=true&anim=0">
 ⁣　　　
 
 　　　　　　　　　　ৎ  ask ﹒ 4prns  𓏏  
