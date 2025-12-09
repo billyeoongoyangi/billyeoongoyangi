@@ -1,16 +1,16 @@
 <img align="center" alt="nightshd" src="https://64.media.tumblr.com/30fb5c05b6f08ed6d887beef7397daca/5fc0cb049961a394-03/s1280x1920/0653b72a2709b49e325b4f0d32ebb1aa14ee769b.pnj">
-<img align="center" alt="2tm" src="https://ella.janitorai.com/bot-avatars/x5ksMLHOtLBV9xz1jfSD6.webp?width=1200">
+<img align="center" alt="2tm" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR_gzH7ube6rBu6bJ3TRPlJcAQ5z5JFznVs0wUSeGfwAdAgXuJzEWr3gyoE&s=10">
 ⁣　　　
 
-　　　　　　　　　　ৎ  they ﹒ them  𓏏  
+　　　　　　　　　　ৎ  ask ﹒ 4prns  𓏏  
       　
          
-　　　　　　　　　　　　　( nb terms )
+　　　　　　　　　　　　　amab fella 🤫
              
 　　　　　　 　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
-  　　　　　　　　　　encore / evo or two time ! 
+  　　　　　　　　　　encore or harvey ! 
       
 　　　　　　　　　　　　dnc skins pls ^_^　　　　　
 
