@@ -1,5 +1,5 @@
 <img align="center" alt="nightshd" src="https://64.media.tumblr.com/30fb5c05b6f08ed6d887beef7397daca/5fc0cb049961a394-03/s1280x1920/0653b72a2709b49e325b4f0d32ebb1aa14ee769b.pnj">
-<img align="center" alt="2tm" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR_gzH7ube6rBu6bJ3TRPlJcAQ5z5JFznVs0wUSeGfwAdAgXuJzEWr3gyoE&s=10">
+<img align="center" alt="2tm" src="https://i.imgur.com/skpDdSj.gif">
 ⁣　　　
 
 　　　　　　　　　　ৎ  ask ﹒ 4prns  𓏏  
@@ -10,7 +10,7 @@
 　　　　　　 　　　　　　. . . (˶ᵔ ᵕ ᵔ˶) . . .                
 
                
-  　　　　　　　　　　encore or harvey ! 
+  　　　　　　　　　　 encore or harvey ! 
       
 　　　　　　　　　　　　dnc skins pls ^_^　　　　　
 
@@ -44,6 +44,6 @@ warn , sm boundary :
 <img align="right" alt="nghhsthd3" src="https://64.media.tumblr.com/2e940aa879e3fc633dc17af94bd27cbd/44cec08fba6c7529-b0/s250x400/fd6da3627b432ad3ae77deb1fa908f06e1c43249.pnj"
 
 <img align="center" alt="nghsdrtm" src="https://64.media.tumblr.com/e92586492b5014273c96c02d91c7dcfd/743e571c1fa3fc46-fb/s500x750/dae447ee561c63f62368c5db6c66f8929bc94439.pnj">
-<img align="center" alt="twtmngts" src="https://64.media.tumblr.com/ee5bec7b4211942ae9e868fc47be7c91/743e571c1fa3fc46-e3/s400x600/6b51c5fc4e349b34c6de3484e9cb509624f043f8.gifv">
+<img align="center" alt="twtmngts" src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcR_gzH7ube6rBu6bJ3TRPlJcAQ5z5JFznVs0wUSeGfwAdAgXuJzEWr3gyoE&s=10">
 
 　　　　　　　　　　[name reference](<https://youtu.be/negtrQu5mTA?si=4oVzbCOVZgQjBIhs>) 　　　　[2](<https://youtu.be/RUsUQ9tRHHQ?si=ScOuwCX8LGw0rnDQ>)
