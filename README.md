@@ -2,9 +2,9 @@
 <img align="center" alt="mequo" src="https://ella.janitorai.com/bot-avatars/Y_IVZX7toHCvjqKWnaJBB.webp?width=400">
 ⁣　　　
 
-　　　　　　🐱　　˚　　call me **two time**　　⏖
+　　　　　　　　🐱　　˚　　call me **two time**　　⏖
       
-　　　　◠　　𓏏𓏏　dnc skins ty¹　i follow back²　　、
+　　　　　　◠　　𓏏𓏏　dnc skins ty¹　i follow back²　　、
 
 
 　　　　　　　　　　　　 ⏔⠀ ﹒ 𓏲𝄢 ﹒ ⠀⏔
