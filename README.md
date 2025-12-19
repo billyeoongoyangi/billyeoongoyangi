@@ -3,10 +3,10 @@
 ⁣　　　
 
 　　　　　　ৎ  they ﹒ them  𓏏  call me two time
-　　　　　✿　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　⊹
+　　　　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　ᛝ⠀
 
 　
-˳ㅤ　ㅤ 𝅄 　c+h only if in name, or if we've interacted at least more than one time/if we're friend　𓈒ㅤ    ୭ৎ　 im not a yume btw if ur wondering ! ᛝ⠀⠀⠀
+˳ㅤ　ㅤ 𝅄 　c+h only if in name, or if we've interacted at least more than one time/if we're friend　𓈒ㅤ    ୭ৎ　 im not a yume btw if ur wondering !
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
