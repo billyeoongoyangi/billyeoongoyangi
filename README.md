@@ -2,13 +2,13 @@
 <img align="center" alt="mequo" src="https://ella.janitorai.com/bot-avatars/Y_IVZX7toHCvjqKWnaJBB.webp?width=400">
 ⁣　　　
 
-　　　　　　🐱　　˚　　call me **two time**　　⏖
-　　　　　　　⠀　◠　　𓏏𓏏　　dnc skins ty¹　　i follow back²　　、
+　　　　　　　　🐱　　˚　　call me **two time**　　⏖
+　　　　　　　　　　　　　⠀　◠　　𓏏𓏏　　dnc skins ty¹　　i follow back²　　、
 
 
 　　　　　　　　　　　　 ⏔⠀ ﹒ 𓏲𝄢 ﹒ ⠀⏔
-　　　　　˳ㅤ　ㅤ 𝅄 　c+h *only* if in name, or if *we've interacted at least more than one time*/if we're friend　𓈒ㅤ    ୭ৎ
-　　　　　　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ¹
+　　　　　　　　　　˳ㅤ　ㅤ 𝅄 　c+h *only* if in name, or if *we've interacted at least more than one time*/if we're friend　𓈒ㅤ    ୭ৎ
+　　　　　　　　　　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ¹
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
