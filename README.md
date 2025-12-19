@@ -8,9 +8,10 @@
 
 
 　　　　　　　　　　　　 ⏔⠀ ﹒ 𓏲𝄢 ﹒ ⠀⏔
-　　　　　　　　　　˳ㅤ　ㅤ 𝅄 　c+h *only* if in name, or if *we've interacted at least more than one time*/if we're friend　𓈒ㅤ    ୭ৎ　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ¹
+　　　　　　　　　　˳ㅤ　ㅤ 𝅄 　c+h *only* if in name, or if *we've interacted at least more than one time*/if we're friends　𓈒ㅤ    ୭ৎ　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ¹
           ♱　***“*** they  . them , sometimes in spanish and russian server ***”***
-          　**ASK/WHISP IF YOU WANT TO INSPO ON MY PONIES!** m4ttwashere is the tuffest character trust
+
+**ASK/WHISP IF YOU WANT TO INSPO ON MY PONIES!** m4ttwashere is the tuffest character trust, also did you know that i sleep accidentally sometimes in game ❤️‍🩹🥹
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
