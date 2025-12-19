@@ -2,11 +2,11 @@
 <img align="center" alt="mequo" src="https://ella.janitorai.com/bot-avatars/Y_IVZX7toHCvjqKWnaJBB.webp?width=400">
 ⁣　　　
 
-　　　　　　ৎ  they ﹒ them  𓏏  call me two time
+　　　　　　(⁠｡⁠･⁠ω⁠･⁠｡⁠)⁠ﾉ⁠♡ ﹒   call me two time
 　　　　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　ᛝ⠀
 
 　
-˳ㅤ　ㅤ 𝅄 　c+h only if in name, or if we've interacted at least more than one time/if we're friend　𓈒ㅤ    ୭ৎ　 im not a yume btw if ur wondering !
+˳ㅤ　ㅤ 𝅄 　c+h only if in name, or if we've interacted at least more than one time/if we're friend　𓈒ㅤ    ୭ৎ　 im not a yume btw !
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
