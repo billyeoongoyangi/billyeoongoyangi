@@ -8,7 +8,7 @@
 
 　　　　　　　　　　　　 ⏔⠀ ﹒ 𓏲𝄢 ﹒ ⠀⏔
 　　　　　　　　　　˳ㅤ　ㅤ 𝅄 　c+h *only* if in name, or if *we've interacted at least more than one time*/if we're friend　𓈒ㅤ    ୭ৎ
-　　　　　　　　　　　　　　　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ¹
+　　　　　　　　　　　　　　　　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ¹
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
