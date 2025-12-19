@@ -2,15 +2,14 @@
 <img align="center" alt="2tm" src="https://img1.picmix.com/output/stamp/normal/3/2/0/4/2794023_6cc20.png">
 ⁣　　　
 
-　　　　　　　　　　　　　　　ৎ  they ﹒ them  𓏏  call me two time
-　　　　　　　　　　　　✿　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　⊹
-　　　　　　　　　　　　c+h only if in name, or if we've interacted at least more than one time/if we're friend
+　　　　　　　　　　ৎ  they ﹒ them  𓏏  call me two time
+　　　　　　　✿　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　⊹
+　c+h only if in name, or if we've interacted at least more than one time/if we're friend
 
 
 
 
-　　　    𓈒ㅤ    ୭ৎ　 　˳ㅤ⠀dni if p3d0 + i lag too nuch sometimes and my keyboard gets stuckㅤ 𝅄   ㅤ🪻      ۪   ݁   𓈒 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　　　　　　　ᛝ⠀⠀⠀⠀⁀　　˳　　⊹
+　　 　　𓈒ㅤ    ୭ৎ　 　˳ㅤ　ㅤ 𝅄  　ᛝ⠀⠀⠀im not a yume btw if ur wondering !
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
