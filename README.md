@@ -2,16 +2,15 @@
 <img align="center" alt="2tm" src="https://img1.picmix.com/output/stamp/normal/3/2/0/4/2794023_6cc20.png">
 ⁣　　　
 
-　　　　　　　　　　　　　　　　　　　ৎ  they ﹒ them  𓏏  
-　　　　　　　　　　　　　　　　　call me two time ! 
-　　　　　　　　　　　　　✿　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　⊹
+　　　　　　　　　　　　　　　ৎ  they ﹒ them  𓏏  call me two time
+　　　　　　　　　　　　✿　⠀　┄┄⠀⠀dnc skins ty¹⠀⠀⠀i follow back!²⠀　　⊹
 　　　　　　　　　　　　c+h only if in name, or if we've interacted at least more than one time/if we're friend
 
 
 
 
-　　　    𓈒ㅤ    ୭ৎ　 　˳ㅤ⠀dont take my jokes seriously + dni p3d0s + i accidentally sleep sometimes while playing, i turn off offline mode sometimes because im comfy like that, if ur my friend no i prob didnt unadd u ! >_> if im uncomfy ill probably walk away, and if ur my friend ill prob whisp it to u, i lag too much sometimes and my keyboard gets stuck so i cant type 💔ㅤ 𝅄   ㅤ🪻      ۪   ݁   𓈒 
-⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ᛝ⠀⠀⠀⠀⁀　　˳　　⊹
+　　　    𓈒ㅤ    ୭ৎ　 　˳ㅤ⠀dni if p3d0 + i lag too nuch sometimes and my keyboard gets stuckㅤ 𝅄   ㅤ🪻      ۪   ݁   𓈒 
+⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀　　　　　　　　ᛝ⠀⠀⠀⠀⁀　　˳　　⊹
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
