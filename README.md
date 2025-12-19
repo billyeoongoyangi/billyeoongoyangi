@@ -11,7 +11,7 @@
 　　　　　　　　　　˳ㅤ　ㅤ 𝅄 　c+h *only* if in name, or if *we've interacted at least more than one time*/if we're friends　𓈒ㅤ    ୭ৎ　　　[𝜗]⠀⠀ 🍓 ⠀𓈒⠀⠀*im not a yume btw* ^.^ ｡
           　♱　***“*** they  . them , sometimes in spanish and russian server ***”***
 
-**ASK/WHISP IF YOU WANT TO INSPO ON MY PONIES!** m4ttwashere is the tuffest character trust, also did you know that i sleep accidentally sometimes in game ❤️‍🩹🥹
+**ASK/WHISP IF YOU WANT TO INSPO ON MY PONIES!** m4ttwashere is the tuffest character trust, also did you know that i sleep accidentally sometimes in game ❤️‍🩹🥹 <img align="center" alt="nb" src="https://cdn.discordapp.com/emojis/1113878056801685594.webp?size=40&quality=lossless"> <img align="center" alt="pan" src="https://cdn.discordapp.com/emojis/1113884983120105522.webp?size=40&quality=lossless">
          
 　　　　　　　　　　　: SIGN MY ATA GRR
 
