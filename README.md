@@ -3,7 +3,7 @@
 ⁣　　　
 
 　　　　　　🐱　　˚　　call me **two time**　　⏖
-　　　　　　　　　　◠　　𓏏𓏏　dnc skins ty¹　i follow back²　　、
+　　　　　　　　　　　　◠　　𓏏𓏏　dnc skins ty¹　i follow back²　　、
 
 
 　　　　　　　　　　　　 ⏔⠀ ﹒ 𓏲𝄢 ﹒ ⠀⏔
