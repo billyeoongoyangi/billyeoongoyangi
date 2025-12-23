@@ -1,5 +1,5 @@
 <img align="center" alt="nightshd" src="https://64.media.tumblr.com/30fb5c05b6f08ed6d887beef7397daca/5fc0cb049961a394-03/s1280x1920/0653b72a2709b49e325b4f0d32ebb1aa14ee769b.pnj">
-<img align="center" alt="mequo" src="https://ella.janitorai.com/bot-avatars/Y_IVZX7toHCvjqKWnaJBB.webp?width=400">
+<img align="center" alt="mequo" src="https://ella.janitorai.com/bot-avatars/ywG8klcSTcnwU-OhQFabI.webp?width=400">
 ⁣　　　
 
 　　　　　　　　🐱　　˚　　call me **two time**　　⏖
