@@ -2,7 +2,7 @@
 <img align="center" alt="mequo" src="https://ella.janitorai.com/bot-avatars/ywG8klcSTcnwU-OhQFabI.webp?width=400">
 ⁣　　　
 
-　　　　　　　　🐱　　˚　　call me **two time**　　⏖
+　　　　　　　　🪓　　˚　　call me **two time**　　⏖
       
 　　　　　　◠　　𓏏𓏏　dnc ponies ty¹　i follow back²　　、
 
