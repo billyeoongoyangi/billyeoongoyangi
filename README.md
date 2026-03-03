@@ -2,7 +2,7 @@
 <img align="center" alt="mequo" src="https://i.postimg.cc/Gt3tyCCd/65y-X-cg1gh-CHa-Uql-Cbgp.webp">
 ⁣　　　
 
-　　　　　　　　❄️　　˚　　**kore** or **nev**　　⏖
+　　　　　　　　❄️　　˚　　**matt** or **nev/kore**　　⏖
       
 　　　　　　◠　　𓏏𓏏　dnc ponies ty¹　i follow back²　　、
 
